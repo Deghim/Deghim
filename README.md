@@ -4,7 +4,7 @@ They call me Yorch
 
 ## What do I do ?
 
-Developer
+Developer & sometimes musician
 
 ## Socials
 
